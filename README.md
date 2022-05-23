@@ -1,0 +1,1 @@
+# PALIT-GeForce-RTX-3070-Ti-GamingPro
